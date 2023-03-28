@@ -3,4 +3,4 @@
 > take the long view because I believe that in the end all things work together for the good.<br>
 >                                          --- Louis Zamperini *Don't Give Up, Don't Give In*, p164
 
-![Louis Zamperini](https://www.flickr.com/photos/beaurogers/31833779864/in/photolist-Qv3rFw-34mt9F-a9Cmfy-5Ha3Zi-9msKdv-o3hgjr-hWpUte-4WMsJ1-KUQ8N-deshUb-vssBD-6CQci6-8AFCiD-zsJWT-nNfsgB-dPDwZJ-bn9JGn-5HtSXY-6CUhAL-a4UTXB-ugPum-KUPSo-fBLNm-6CUmpy-4WMsc9-8a7D3T-83KJev-6CQ2bK-nNusHJ-a78rQH-nw3NvT-7aq2qf-8wwBso-3nNceh-ugSKP-4mh4kh-bbeeqH-a7biME-q3PtTf-brFpgb-cg38zw-bXMZc-nJPELD-f58Lmo-bXMYG-bz8AAi-bxNtNT-bXMYi-bXMY6-bXMYv)
+![Louis Zamperini](https://www.google.com/url?sa=i&url=https%3A%2F%2Fmyhero.com%2FL_Zamperini2_dnhs_as_US_2016_ul&psig=AOvVaw0W1BQ8_p0eVE6-r7d82KNi&ust=1680099845189000&source=images&cd=vfe&ved=0CBAQjRxqFwoTCIDU84Xq_v0CFQAAAAAdAAAAABAR)
